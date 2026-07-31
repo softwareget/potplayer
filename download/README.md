@@ -4,4 +4,4 @@
 
 ## 下载
 
-[点击进入Potplayer官网下载页](https://potplayer.net/)
+[点击进入Potplayer官网下载页](https://potplayer.tv/downloads/)
